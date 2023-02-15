@@ -9,7 +9,7 @@ Here are some ideas to get you started:
 
 -  🗼 Living in **Mississauga, Canada
 - 👨‍💻 Currently Working as Freelancer at Nuvo Horizons
-- - ✈️ Open to Remote Job Opportunities 🍻
+- ✈️ Open to Remote Job Opportunities 🍻
 
 <br/>
 
