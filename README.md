@@ -5,7 +5,6 @@ Hi I'm [anjansrivathsav](https://www.linkedin.com/in/anjan-srivathsav-gangishett
 <br/>
 <br/>
 
-Here are some ideas to get you started:
 
 -  🗼 Living in **Mississauga, Canada
 - 👨‍💻 Currently Working as Full Stack Developer at Nuvo Horizons
