@@ -7,8 +7,7 @@ Hi I'm [anjansrivathsav](https://www.linkedin.com/in/anjan-srivathsav-gangishett
 
 
 -  🗼 Living in **Mississauga, Canada
-- 👨‍💻 Currently Working as Full Stack Developer at Nuvo Horizons
-- ✈️ Open to Remote Job Opportunities 🍻
+- 👨‍💻 Currently Working as Co-op Student at Telus
 
 <br/>
 
